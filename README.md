@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://64.media.tumblr.com/4be3429ac4e65163dec5ed1c8a8c56b5/ac2d1016cc2f5479-a8/s2048x3072/2d3f6552c9ad56f79a5f7fe85cb9d29d52255850.gifv)
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSe6kO3wBE16Cpkm_-T8yjkXIKH9IsS0PGnGPZ3KWWsfRVMPHVFbaH6MkY&s=10)
 
 ![](https://i.postimg.cc/k4MCXdcp/white-17.png) *" So keep pretending you love me*
 
